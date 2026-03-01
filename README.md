@@ -1,0 +1,1 @@
+# Ses-Veri-Veti-B-l-nlenmesi
